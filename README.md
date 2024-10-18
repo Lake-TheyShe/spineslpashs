@@ -1,5 +1,5 @@
 - "HELLO, CREATOR."
-- feel free to interact w/me, i dont 'bite'. ;)
+- feel free to interact w/me, i dont 'bite'.
 - im usually in the phighting area, if not, the gravity falls and/or island.
 - STATUS MEANING↓↓↓
 - online : int
