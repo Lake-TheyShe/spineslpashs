@@ -8,6 +8,7 @@
 - busy : dniuf (i'll most likely be w/friends when i use this)
 - p.s. im not the best conversation starter, so dont expect me to carry it.
 
+[WHY R PPL FOLLOWING ME IM GIGGLING HII!!]
 <!---
 spineslpashs/spineslpashs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
