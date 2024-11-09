@@ -8,6 +8,7 @@
 - busy : dniuf (i'll most likely be w/friends when i use this)
 
 [WHY R PPL FOLLOWING ME IM GIGGLING HII!!]
+[[NOTE : OLD USER USED TO BE SPINESLPASHS]]
 <!---
 spineslpashs/spineslpashs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
